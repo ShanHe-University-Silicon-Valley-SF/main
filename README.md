@@ -1,4 +1,4 @@
-**SHU-Silicon Valley, San Francisco**
+# SHU-Silicon Valley, San Francisco
 山河大学硅谷分校（旧金山）
 
 山河大学硅谷分校（旧金山）是山河大学与加大伯克利共同对外合作的分校。我们致力于提供优质的高等教育资源，为山河四省的学子提供更广阔的学习空间和资源。
